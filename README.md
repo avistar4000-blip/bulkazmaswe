@@ -1,2 +1,0 @@
-# bulkazmaswe
-bułka z masłem
